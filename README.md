@@ -2,5 +2,5 @@
 
 - 🌱 I’m currently  aprimorando meus conhecimentos em  UX Designer e Front End;
 -  👩🏻‍🎓  Sou formada em Engenharia Civil;
-- 🚀 Atuamente estou buscando uma oportunidade para fazer uma transição de carreira;
+- 🚀  Estou buscando oportunidades para uma transição de carreira .
 -->
